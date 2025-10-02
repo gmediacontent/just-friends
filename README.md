@@ -1,1 +1,2 @@
-# just-friends
+# Just Friends
+Ha-neul et Min-cheol sont amis depuis leur plus tendre enfance. Mais un beau jour, Ha-neul découvre par mégarde son ami en plein moment intime ! Après malentendus sur malentendus et entre illusions et désillusions, leur amitié est dans l’impasse. Seront-ils capables de rester juste des amis ?
